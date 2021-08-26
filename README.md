@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mikemaike
+- oi oi 
 - birds fly
 - sun shines 
 - and i don't fucking die
